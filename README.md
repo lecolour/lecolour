@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @lecolour
+- 👀 I’m interested in BATHROOM accissories
+- 🌱 I’m currently studying selling on Amazon ...
+- 💞️ I’m looking to collaborate on anybody interested in ceramic
+- 📫 How to reach me Amazon shop:https://www.amazon.com/foreverceramic
+- Email:bobochen@foreverceramic.com
